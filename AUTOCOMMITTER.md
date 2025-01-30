@@ -1,1 +1,1 @@
-Tomatoes have more genes than humans.
+Your taste buds have a lifespan of about 10 days.
