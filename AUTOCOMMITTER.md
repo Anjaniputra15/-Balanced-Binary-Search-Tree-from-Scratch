@@ -1,1 +1,1 @@
-Peanuts aren’t nuts — they’re legumes.
+A snail can grow back its eye if it gets cut off.
