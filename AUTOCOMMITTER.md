@@ -1,1 +1,1 @@
-A group of ferrets is called a "business."
+Rabbits can’t vomit.
