@@ -1,1 +1,1 @@
-The unicorn is the national animal of Scotland.
+The hashtag symbol is technically called an octothorpe.
