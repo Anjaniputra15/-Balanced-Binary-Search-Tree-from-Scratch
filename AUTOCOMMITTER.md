@@ -1,1 +1,1 @@
-The hashtag symbol is technically called an octothorpe.
+Tomatoes have more genes than humans.
