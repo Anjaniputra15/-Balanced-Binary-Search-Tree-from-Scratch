@@ -1,1 +1,1 @@
-Your taste buds have a lifespan of about 10 days.
+A bolt of lightning travels at about 270,000 mph.
