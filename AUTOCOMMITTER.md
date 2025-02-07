@@ -1,1 +1,1 @@
-A bolt of lightning travels at about 270,000 mph.
+Peanuts aren’t nuts — they’re legumes.
