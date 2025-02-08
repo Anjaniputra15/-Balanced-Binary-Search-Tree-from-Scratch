@@ -1,1 +1,1 @@
-Most wasabi isn’t real wasabi — it’s colored horseradish.
+A group of ferrets is called a "business."
