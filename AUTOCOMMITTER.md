@@ -1,1 +1,1 @@
-The original London Bridge is now in Arizona.
+Bananas are berries, but strawberries are not.
