@@ -1,1 +1,1 @@
-Bananas are berries, but strawberries are not.
+Octopuses have three hearts.
