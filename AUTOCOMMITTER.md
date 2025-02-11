@@ -1,1 +1,1 @@
-Octopuses have three hearts.
+Pineapples take two years to grow.
