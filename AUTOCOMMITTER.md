@@ -1,1 +1,1 @@
-A group of crows is called a murder.
+Koalas have fingerprints that are nearly identical to humans.
