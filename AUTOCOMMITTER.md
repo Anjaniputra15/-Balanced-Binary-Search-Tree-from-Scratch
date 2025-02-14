@@ -1,1 +1,1 @@
-Sea otters hold hands when they sleep to avoid drifting apart.
+There’s a species of jellyfish that can live forever.
