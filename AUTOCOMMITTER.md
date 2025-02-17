@@ -1,1 +1,1 @@
-The heart of a shrimp is located in its head.
+The original London Bridge is now in Arizona.
