@@ -1,1 +1,1 @@
-Pineapples take two years to grow.
+The hashtag symbol used to be called the pound sign.
