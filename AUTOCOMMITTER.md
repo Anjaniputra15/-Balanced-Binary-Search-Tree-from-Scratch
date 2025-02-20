@@ -1,1 +1,1 @@
-Koalas have fingerprints that are nearly identical to humans.
+Sea otters hold hands when they sleep to avoid drifting apart.
