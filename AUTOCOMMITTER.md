@@ -1,1 +1,1 @@
-Pigeons can do math.
+Most wasabi isn’t real wasabi — it’s colored horseradish.
