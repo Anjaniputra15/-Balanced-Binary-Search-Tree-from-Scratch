@@ -1,1 +1,1 @@
-A group of flamingos is called a "flamboyance."
+The unicorn is the national animal of Scotland.
