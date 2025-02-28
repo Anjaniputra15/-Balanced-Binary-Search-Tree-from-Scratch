@@ -1,1 +1,1 @@
-The heart of a shrimp is located in its head.
+Tigers have striped skin, not just striped fur.
