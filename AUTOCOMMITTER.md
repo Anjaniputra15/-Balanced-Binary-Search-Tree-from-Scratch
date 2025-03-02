@@ -1,1 +1,1 @@
-Scotland has 421 words for "snow."
+The human stomach gets a new lining every few days.
