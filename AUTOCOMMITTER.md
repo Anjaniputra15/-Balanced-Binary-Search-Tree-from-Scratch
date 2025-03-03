@@ -1,1 +1,1 @@
-Wombat poop is cube-shaped.
+The heart of a shrimp is located in its head.
