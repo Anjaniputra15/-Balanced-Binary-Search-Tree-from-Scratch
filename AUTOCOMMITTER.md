@@ -1,1 +1,1 @@
-It rains diamonds on Jupiter and Saturn.
+A jiffy is an actual unit of time — 1/100th of a second.
