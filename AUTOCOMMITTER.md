@@ -1,1 +1,1 @@
-There’s a species of jellyfish that can live forever.
+Alaska is the state with the highest percentage of people who walk to work.
