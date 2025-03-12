@@ -1,1 +1,1 @@
-Otters have a favorite rock they use to break open food.
+It rains diamonds on Jupiter and Saturn.
