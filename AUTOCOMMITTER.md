@@ -1,1 +1,1 @@
-A bolt of lightning travels at about 270,000 mph.
+The first oranges weren’t orange — they were green.
