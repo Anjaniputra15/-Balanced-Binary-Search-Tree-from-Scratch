@@ -1,1 +1,1 @@
-A snail can grow back its eye if it gets cut off.
+The original London Bridge is now in Arizona.
