@@ -1,1 +1,1 @@
-Chewing gum while cutting onions can help prevent tears.
+A group of flamingos is called a "flamboyance."
