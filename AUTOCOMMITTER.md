@@ -1,1 +1,1 @@
-The unicorn is the national animal of Scotland.
+A snail can grow back its eye if it gets cut off.
