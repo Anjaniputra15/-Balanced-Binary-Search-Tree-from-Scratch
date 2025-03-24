@@ -1,1 +1,1 @@
-Chewing gum while cutting onions can help prevent tears.
+The Eiffel Tower can grow more than 6 inches in summer due to heat expansion.
