@@ -1,1 +1,1 @@
-A group of flamingos is called a "flamboyance."
+Snails can sleep for three years at a time.
