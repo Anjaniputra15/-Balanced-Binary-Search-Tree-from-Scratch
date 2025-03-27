@@ -1,1 +1,1 @@
-A snail can grow back its eye if it gets cut off.
+Chewing gum while cutting onions can help prevent tears.
