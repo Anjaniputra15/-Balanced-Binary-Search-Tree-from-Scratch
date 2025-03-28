@@ -1,1 +1,1 @@
-Octopuses taste with their arms.
+There’s a species of jellyfish that can live forever.
