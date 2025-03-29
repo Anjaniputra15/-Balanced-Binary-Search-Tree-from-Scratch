@@ -1,1 +1,1 @@
-The dot over the "i" and "j" is called a tittle.
+Elephants are the only animals that can’t jump.
