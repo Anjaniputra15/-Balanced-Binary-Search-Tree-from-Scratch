@@ -1,1 +1,1 @@
-Elephants are the only animals that can’t jump.
+Humans glow in the dark — very faintly.
