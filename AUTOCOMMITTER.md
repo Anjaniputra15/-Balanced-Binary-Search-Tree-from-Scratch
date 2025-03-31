@@ -1,1 +1,1 @@
-Some cats are allergic to humans.
+Sharks are the only fish that can blink with both eyes.
