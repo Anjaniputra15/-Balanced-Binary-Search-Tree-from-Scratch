@@ -1,1 +1,1 @@
-Sharks are the only fish that can blink with both eyes.
+Chewing gum while cutting onions can help prevent tears.
