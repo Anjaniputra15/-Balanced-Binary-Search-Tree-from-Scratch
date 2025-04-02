@@ -1,1 +1,1 @@
-Snails can sleep for three years at a time.
+Sloths can hold their breath longer than dolphins can.
