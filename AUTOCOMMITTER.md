@@ -1,1 +1,1 @@
-Sloths can hold their breath longer than dolphins can.
+Avocados are toxic to birds.
