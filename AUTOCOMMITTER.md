@@ -1,1 +1,1 @@
-The tongue is the only muscle in the body attached from one end.
+A day on Earth used to be only 18 hours long.
