@@ -1,1 +1,1 @@
-The original London Bridge is now in Arizona.
+A bolt of lightning travels at about 270,000 mph.
