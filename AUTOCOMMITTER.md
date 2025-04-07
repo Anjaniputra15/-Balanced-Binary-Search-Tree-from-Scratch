@@ -1,1 +1,1 @@
-Sea otters hold hands when they sleep to avoid drifting apart.
+A single cloud can weigh more than a million pounds.
