@@ -1,1 +1,1 @@
-The hashtag symbol is technically called an octothorpe.
+Some cats are allergic to humans.
