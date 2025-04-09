@@ -1,1 +1,1 @@
-Avocados are toxic to birds.
+The heart of a shrimp is located in its head.
