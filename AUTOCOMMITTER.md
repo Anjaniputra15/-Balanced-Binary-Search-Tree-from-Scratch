@@ -1,1 +1,1 @@
-Cows can walk up stairs but not down.
+Peanuts aren’t nuts — they’re legumes.
