@@ -1,1 +1,1 @@
-Sharks are the only fish that can blink with both eyes.
+Humans share about 60% of their DNA with bananas.
