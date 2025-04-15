@@ -1,1 +1,1 @@
-You can’t sneeze with your eyes open.
+Sharks are the only fish that can blink with both eyes.
