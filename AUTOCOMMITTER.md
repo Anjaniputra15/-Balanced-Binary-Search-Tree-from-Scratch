@@ -1,1 +1,1 @@
-The heart of a shrimp is located in its head.
+Octopuses have three hearts.
