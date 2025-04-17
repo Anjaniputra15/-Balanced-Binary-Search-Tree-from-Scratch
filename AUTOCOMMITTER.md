@@ -1,1 +1,1 @@
-Octopuses have three hearts.
+Butterflies can taste with their feet.
