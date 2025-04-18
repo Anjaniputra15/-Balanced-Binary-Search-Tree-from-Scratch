@@ -1,1 +1,1 @@
-A day on Earth used to be only 18 hours long.
+A group of ferrets is called a "business."
