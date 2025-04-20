@@ -1,1 +1,1 @@
-There are more stars in the universe than grains of sand on Earth.
+Hot water freezes faster than cold water — it’s called the Mpemba effect.
