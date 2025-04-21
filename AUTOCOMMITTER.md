@@ -1,1 +1,1 @@
-A human could swim through a blue whale’s arteries.
+Hot water freezes faster than cold water — it’s called the Mpemba effect.
