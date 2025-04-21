@@ -1,1 +1,1 @@
-Humans share about 60% of their DNA with bananas.
+One spaghetti noodle is called a spaghetto.
