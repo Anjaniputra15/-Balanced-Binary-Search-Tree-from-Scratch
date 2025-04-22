@@ -1,1 +1,1 @@
-Humans share about 60% of their DNA with bananas.
+A human could swim through a blue whale’s arteries.
