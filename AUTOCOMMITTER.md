@@ -1,1 +1,1 @@
-Pigeons can do math.
+You can’t sneeze with your eyes open.
