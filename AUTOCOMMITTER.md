@@ -1,1 +1,1 @@
-Butterflies can taste with their feet.
+The longest English word is 189,819 letters long.
