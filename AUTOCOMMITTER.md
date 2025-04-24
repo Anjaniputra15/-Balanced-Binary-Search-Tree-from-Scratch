@@ -1,1 +1,1 @@
-The longest English word is 189,819 letters long.
+The word "strengths" is the longest word with one vowel.
