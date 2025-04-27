@@ -1,1 +1,1 @@
-Hot water freezes faster than cold water — it’s called the Mpemba effect.
+Cows can walk up stairs but not down.
