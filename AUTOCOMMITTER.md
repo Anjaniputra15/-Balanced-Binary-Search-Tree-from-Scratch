@@ -1,1 +1,1 @@
-A group of porcupines is called a "prickle."
+Humans are the only animals with chins.
