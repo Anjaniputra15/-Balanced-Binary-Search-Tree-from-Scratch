@@ -1,1 +1,1 @@
-One spaghetti noodle is called a spaghetto.
+The longest English word is 189,819 letters long.
