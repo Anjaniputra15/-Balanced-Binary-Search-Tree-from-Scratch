@@ -1,1 +1,1 @@
-Cows have best friends and get stressed when separated.
+A bolt of lightning travels at about 270,000 mph.
