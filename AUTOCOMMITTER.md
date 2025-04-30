@@ -1,1 +1,1 @@
-The word "strengths" is the longest word with one vowel.
+Cows have best friends and get stressed when separated.
