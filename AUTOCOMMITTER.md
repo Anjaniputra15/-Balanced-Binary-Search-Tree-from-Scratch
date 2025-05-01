@@ -1,1 +1,1 @@
-Worms can have up to five hearts.
+The word "strengths" is the longest word with one vowel.
