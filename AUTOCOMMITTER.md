@@ -1,1 +1,1 @@
-The word "strengths" is the longest word with one vowel.
+Octopuses taste with their arms.
