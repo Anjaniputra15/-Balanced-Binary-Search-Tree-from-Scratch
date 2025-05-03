@@ -1,1 +1,1 @@
-A human could swim through a blue whale’s arteries.
+Worms can have up to five hearts.
