@@ -1,1 +1,1 @@
-The first oranges weren’t orange — they were green.
+A group of porcupines is called a "prickle."
