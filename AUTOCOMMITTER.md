@@ -1,1 +1,1 @@
-Cows have best friends and get stressed when separated.
+Worms can have up to five hearts.
