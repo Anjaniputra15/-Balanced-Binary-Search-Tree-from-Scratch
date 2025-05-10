@@ -1,1 +1,1 @@
-The world’s largest snowflake was 15 inches wide.
+A human could swim through a blue whale’s arteries.
