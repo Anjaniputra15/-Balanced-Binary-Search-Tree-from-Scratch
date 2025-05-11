@@ -1,1 +1,1 @@
-Sloths can hold their breath longer than dolphins can.
+Your taste buds have a lifespan of about 10 days.
