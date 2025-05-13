@@ -1,1 +1,1 @@
-A bolt of lightning is hotter than the surface of the sun.
+A single cloud can weigh more than a million pounds.
