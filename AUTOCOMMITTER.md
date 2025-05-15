@@ -1,1 +1,1 @@
-The unicorn is the national animal of Scotland.
+Cows have best friends and get stressed when separated.
