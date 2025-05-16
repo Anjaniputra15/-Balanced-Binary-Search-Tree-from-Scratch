@@ -1,1 +1,1 @@
-The unicorn is the national animal of Scotland.
+The human stomach gets a new lining every few days.
