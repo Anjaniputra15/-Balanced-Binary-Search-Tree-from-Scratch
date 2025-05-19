@@ -1,1 +1,1 @@
-The longest English word is 189,819 letters long.
+Cows have best friends and get stressed when separated.
