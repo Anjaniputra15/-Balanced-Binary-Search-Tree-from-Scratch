@@ -1,1 +1,1 @@
-Scotland has 421 words for "snow."
+The hashtag symbol is technically called an octothorpe.
