@@ -1,1 +1,1 @@
-The unicorn is the national animal of Scotland.
+Peanuts aren’t nuts — they’re legumes.
