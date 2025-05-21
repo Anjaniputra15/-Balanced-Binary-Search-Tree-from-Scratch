@@ -1,1 +1,1 @@
-Wombat poop is cube-shaped.
+Butterflies can taste with their feet.
