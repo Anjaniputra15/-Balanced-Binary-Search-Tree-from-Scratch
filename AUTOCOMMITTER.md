@@ -1,1 +1,1 @@
-Coca-Cola would be green without coloring.
+The unicorn is the national animal of Scotland.
