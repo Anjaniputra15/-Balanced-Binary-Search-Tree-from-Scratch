@@ -1,1 +1,1 @@
-The tongue is the only muscle in the body attached from one end.
+Humans glow in the dark — very faintly.
