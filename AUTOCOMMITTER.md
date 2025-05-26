@@ -1,1 +1,1 @@
-The longest English word is 189,819 letters long.
+The average person walks the equivalent of five times around the world in a lifetime.
