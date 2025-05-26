@@ -1,1 +1,1 @@
-Cows have best friends and get stressed when separated.
+Humans glow in the dark — very faintly.
