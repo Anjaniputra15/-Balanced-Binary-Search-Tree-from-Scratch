@@ -1,1 +1,1 @@
-The shortest war in history was between Britain and Zanzibar — it lasted 38 minutes.
+Scotland has 421 words for "snow."
