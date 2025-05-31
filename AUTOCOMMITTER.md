@@ -1,1 +1,1 @@
-The world’s largest snowflake was 15 inches wide.
+The tongue is the only muscle in the body attached from one end.
