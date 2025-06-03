@@ -1,1 +1,1 @@
-Tigers have striped skin, not just striped fur.
+The shortest war in history was between Britain and Zanzibar — it lasted 38 minutes.
