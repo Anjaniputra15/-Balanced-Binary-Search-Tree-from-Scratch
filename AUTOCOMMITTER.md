@@ -1,1 +1,1 @@
-Bubble wrap was originally intended to be wallpaper.
+There are more fake flamingos in the world than real ones.
