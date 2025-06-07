@@ -1,1 +1,1 @@
-The wood frog can hold its pee for up to eight months.
+The inventor of the Pringles can is buried in one.
