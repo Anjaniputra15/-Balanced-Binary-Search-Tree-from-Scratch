@@ -1,1 +1,1 @@
-Humans glow in the dark — very faintly.
+A planet exists where it rains molten glass sideways.
