@@ -1,1 +1,1 @@
-Your fingernails grow faster on your dominant hand.
+The longest English word is 189,819 letters long.
