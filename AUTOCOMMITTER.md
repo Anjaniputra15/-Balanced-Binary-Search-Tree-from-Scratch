@@ -1,1 +1,1 @@
-The tongue is the only muscle in the body attached from one end.
+Tigers have striped skin, not just striped fur.
