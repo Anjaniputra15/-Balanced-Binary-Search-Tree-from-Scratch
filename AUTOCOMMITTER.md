@@ -1,1 +1,1 @@
-There are more fake flamingos in the world than real ones.
+A day on Venus is longer than a year on Venus.
