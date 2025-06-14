@@ -1,1 +1,1 @@
-The inventor of the Pringles can is buried in one.
+The hashtag symbol used to be called the pound sign.
