@@ -1,1 +1,1 @@
-A planet exists where it rains molten glass sideways.
+Sea otters hold hands when they sleep to avoid drifting apart.
