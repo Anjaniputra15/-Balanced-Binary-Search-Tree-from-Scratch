@@ -1,1 +1,1 @@
-Cows have best friends and get stressed when separated.
+Coca-Cola would be green without coloring.
