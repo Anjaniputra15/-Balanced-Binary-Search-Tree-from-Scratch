@@ -1,1 +1,1 @@
-Your taste buds have a lifespan of about 10 days.
+The tongue is the only muscle in the body attached from one end.
