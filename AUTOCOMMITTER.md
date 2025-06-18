@@ -1,1 +1,1 @@
-The human stomach gets a new lining every few days.
+Sloths can hold their breath longer than dolphins can.
