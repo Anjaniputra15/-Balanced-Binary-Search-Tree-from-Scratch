@@ -1,1 +1,1 @@
-A planet exists where it rains molten glass sideways.
+Frogs absorb water through their skin — they don’t drink it.
