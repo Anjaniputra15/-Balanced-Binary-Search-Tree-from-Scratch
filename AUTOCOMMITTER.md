@@ -1,1 +1,1 @@
-Octopuses taste with their arms.
+Bubble wrap was originally intended to be wallpaper.
