@@ -1,1 +1,1 @@
-The hashtag symbol used to be called the pound sign.
+Your taste buds have a lifespan of about 10 days.
