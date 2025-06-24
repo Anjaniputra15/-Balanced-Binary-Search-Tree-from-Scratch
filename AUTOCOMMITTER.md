@@ -1,1 +1,1 @@
-The longest hiccuping spree lasted 68 years.
+A planet exists where it rains molten glass sideways.
