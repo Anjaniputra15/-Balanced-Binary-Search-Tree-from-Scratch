@@ -1,1 +1,1 @@
-Newborns don’t shed tears until about two weeks old.
+The world’s largest snowflake was 15 inches wide.
