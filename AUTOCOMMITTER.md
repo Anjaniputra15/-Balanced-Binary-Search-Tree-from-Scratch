@@ -1,1 +1,1 @@
-The unicorn is the national animal of Scotland.
+The longest hiccuping spree lasted 68 years.
