@@ -1,1 +1,1 @@
-The human stomach gets a new lining every few days.
+Chewing gum while cutting onions can help prevent tears.
