@@ -1,1 +1,1 @@
-A group of flamingos is called a "flamboyance."
+The dot over the "i" and "j" is called a tittle.
