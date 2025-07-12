@@ -1,1 +1,1 @@
-Chewing gum while cutting onions can help prevent tears.
+Newborns don’t shed tears until about two weeks old.
