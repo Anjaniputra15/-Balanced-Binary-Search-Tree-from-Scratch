@@ -1,1 +1,1 @@
-Humans glow in the dark — very faintly.
+The human stomach gets a new lining every few days.
