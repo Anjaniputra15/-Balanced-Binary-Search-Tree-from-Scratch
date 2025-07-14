@@ -1,1 +1,1 @@
-Sharks existed before trees.
+A planet exists where it rains molten glass sideways.
