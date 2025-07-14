@@ -1,1 +1,1 @@
-The shortest war in history was between Britain and Zanzibar — it lasted 38 minutes.
+Humans glow in the dark — very faintly.
