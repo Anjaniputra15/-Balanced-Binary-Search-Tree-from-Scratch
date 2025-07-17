@@ -1,1 +1,1 @@
-The dot over the "i" and "j" is called a tittle.
+The shortest war in history was between Britain and Zanzibar — it lasted 38 minutes.
