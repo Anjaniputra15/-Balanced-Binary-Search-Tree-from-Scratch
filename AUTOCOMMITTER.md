@@ -1,1 +1,1 @@
-Sea otters hold hands when they sleep to avoid drifting apart.
+The unicorn is the national animal of Scotland.
