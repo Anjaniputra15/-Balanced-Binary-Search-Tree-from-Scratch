@@ -1,1 +1,1 @@
-Tomatoes have more genes than humans.
+The total weight of all ants on Earth is roughly equal to that of all humans.
