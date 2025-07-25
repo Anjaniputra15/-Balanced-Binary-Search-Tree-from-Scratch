@@ -1,1 +1,1 @@
-A group of ferrets is called a "business."
+You can’t sneeze with your eyes open.
