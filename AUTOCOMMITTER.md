@@ -1,1 +1,1 @@
-The unicorn is the national animal of Scotland.
+Cows can walk up stairs but not down.
