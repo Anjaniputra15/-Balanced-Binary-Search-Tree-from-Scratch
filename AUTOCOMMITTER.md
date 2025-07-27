@@ -1,1 +1,1 @@
-The unicorn is the national animal of Scotland.
+The inventor of the frisbee was turned into a frisbee after he died.
