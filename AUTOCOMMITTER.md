@@ -1,1 +1,1 @@
-The inventor of the frisbee was turned into a frisbee after he died.
+A snail can grow back its eye if it gets cut off.
