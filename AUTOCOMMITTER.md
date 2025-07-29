@@ -1,1 +1,1 @@
-A day on Earth used to be only 18 hours long.
+There’s a basketball court on the top floor of the U.S. Supreme Court building — it’s nicknamed "the highest court in the land."
