@@ -1,1 +1,1 @@
-Pigeons can do math.
+Cows can walk up stairs but not down.
