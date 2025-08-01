@@ -1,1 +1,1 @@
-Cows can walk up stairs but not down.
+A group of ferrets is called a "business."
