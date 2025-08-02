@@ -1,1 +1,1 @@
-Humans glow in the dark — very faintly.
+The longest English word is 189,819 letters long.
