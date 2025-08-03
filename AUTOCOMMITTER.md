@@ -1,1 +1,1 @@
-A snail can grow back its eye if it gets cut off.
+A jiffy is an actual unit of time — 1/100th of a second.
