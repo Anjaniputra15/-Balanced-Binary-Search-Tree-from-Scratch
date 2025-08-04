@@ -1,1 +1,1 @@
-A jiffy is an actual unit of time — 1/100th of a second.
+Frogs absorb water through their skin — they don’t drink it.
