@@ -1,1 +1,1 @@
-Frogs absorb water through their skin — they don’t drink it.
+Tigers have striped skin, not just striped fur.
