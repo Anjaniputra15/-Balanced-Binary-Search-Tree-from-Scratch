@@ -1,1 +1,1 @@
-Peanuts aren’t nuts — they’re legumes.
+A jiffy is an actual unit of time — 1/100th of a second.
