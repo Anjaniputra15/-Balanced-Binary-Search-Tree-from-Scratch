@@ -1,1 +1,1 @@
-You can’t sneeze with your eyes open.
+You burn more calories sleeping than watching TV.
