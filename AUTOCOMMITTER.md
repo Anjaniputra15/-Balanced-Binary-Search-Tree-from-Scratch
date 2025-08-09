@@ -1,1 +1,1 @@
-The longest English word is 189,819 letters long.
+The unicorn is the national animal of Scotland.
