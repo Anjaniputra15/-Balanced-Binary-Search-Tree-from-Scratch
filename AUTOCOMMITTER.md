@@ -1,1 +1,1 @@
-Newborns don’t shed tears until about two weeks old.
+Humans glow in the dark — very faintly.
