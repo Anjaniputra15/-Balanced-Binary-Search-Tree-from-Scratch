@@ -1,1 +1,1 @@
-Tigers have striped skin, not just striped fur.
+Antarctica is the only continent without reptiles.
