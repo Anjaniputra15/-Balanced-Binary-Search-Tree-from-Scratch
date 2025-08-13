@@ -1,1 +1,1 @@
-Antarctica is the only continent without reptiles.
+A day on Venus is longer than a year on Venus.
