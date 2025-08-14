@@ -1,1 +1,1 @@
-You burn more calories sleeping than watching TV.
+Humans share about 60% of their DNA with bananas.
