@@ -1,1 +1,1 @@
-Tomatoes have more genes than humans.
+Cows can walk up stairs but not down.
