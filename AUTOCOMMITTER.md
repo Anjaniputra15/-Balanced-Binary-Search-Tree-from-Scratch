@@ -1,1 +1,1 @@
-Cows can walk up stairs but not down.
+A bolt of lightning travels at about 270,000 mph.
