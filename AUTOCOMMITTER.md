@@ -1,1 +1,1 @@
-A planet exists where it rains molten glass sideways.
+Newborns don’t shed tears until about two weeks old.
