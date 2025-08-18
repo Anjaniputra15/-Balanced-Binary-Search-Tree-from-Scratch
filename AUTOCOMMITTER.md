@@ -1,1 +1,1 @@
-Coca-Cola would be green without coloring.
+Peanuts aren’t nuts — they’re legumes.
