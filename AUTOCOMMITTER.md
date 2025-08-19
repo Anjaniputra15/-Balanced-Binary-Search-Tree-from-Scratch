@@ -1,1 +1,1 @@
-A day on Venus is longer than a year on Venus.
+The wood frog can hold its pee for up to eight months.
