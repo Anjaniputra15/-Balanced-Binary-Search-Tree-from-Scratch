@@ -1,1 +1,1 @@
-The wood frog can hold its pee for up to eight months.
+Otters have a favorite rock they use to break open food.
