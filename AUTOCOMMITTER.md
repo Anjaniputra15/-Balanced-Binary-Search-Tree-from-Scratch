@@ -1,1 +1,1 @@
-Cows can walk up stairs but not down.
+Your taste buds have a lifespan of about 10 days.
