@@ -1,1 +1,1 @@
-A bolt of lightning travels at about 270,000 mph.
+A day on Earth used to be only 18 hours long.
