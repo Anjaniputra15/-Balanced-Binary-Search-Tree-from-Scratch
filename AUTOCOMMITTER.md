@@ -1,1 +1,1 @@
-The longest English word is 189,819 letters long.
+The Eiffel Tower can grow more than 6 inches in summer due to heat expansion.
