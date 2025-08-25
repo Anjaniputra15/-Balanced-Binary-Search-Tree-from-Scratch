@@ -1,1 +1,1 @@
-The Eiffel Tower can grow more than 6 inches in summer due to heat expansion.
+Coca-Cola would be green without coloring.
