@@ -1,1 +1,1 @@
-Humans share about 60% of their DNA with bananas.
+A bolt of lightning travels at about 270,000 mph.
