@@ -1,1 +1,1 @@
-Pigeons can do math.
+There are more stars in the universe than grains of sand on Earth.
