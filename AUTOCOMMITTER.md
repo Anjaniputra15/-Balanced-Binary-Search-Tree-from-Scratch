@@ -1,1 +1,1 @@
-There are more stars in the universe than grains of sand on Earth.
+The first oranges weren’t orange — they were green.
