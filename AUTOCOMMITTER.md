@@ -1,1 +1,1 @@
-You can’t sneeze with your eyes open.
+A day on Earth used to be only 18 hours long.
