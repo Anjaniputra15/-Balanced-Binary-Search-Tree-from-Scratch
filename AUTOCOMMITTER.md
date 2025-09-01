@@ -1,1 +1,1 @@
-The hashtag symbol used to be called the pound sign.
+Newborns don’t shed tears until about two weeks old.
