@@ -1,1 +1,1 @@
-A bolt of lightning travels at about 270,000 mph.
+The hashtag symbol used to be called the pound sign.
