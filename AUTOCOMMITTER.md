@@ -1,1 +1,1 @@
-Pineapples take two years to grow.
+Tomatoes have more genes than humans.
