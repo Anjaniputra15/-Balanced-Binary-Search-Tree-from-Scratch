@@ -1,1 +1,1 @@
-The first oranges weren’t orange — they were green.
+You can’t hum while holding your nose closed.
