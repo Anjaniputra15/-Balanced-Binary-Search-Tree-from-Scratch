@@ -1,1 +1,1 @@
-The human stomach gets a new lining every few days.
+Most wasabi isn’t real wasabi — it’s colored horseradish.
