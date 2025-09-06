@@ -1,1 +1,1 @@
-You can’t hum while holding your nose closed.
+You can’t sneeze with your eyes open.
