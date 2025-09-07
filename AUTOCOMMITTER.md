@@ -1,1 +1,1 @@
-A planet exists where it rains molten glass sideways.
+The longest English word is 189,819 letters long.
