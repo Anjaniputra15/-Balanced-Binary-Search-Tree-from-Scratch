@@ -1,1 +1,1 @@
-Newborns don’t shed tears until about two weeks old.
+Coca-Cola would be green without coloring.
