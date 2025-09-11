@@ -1,1 +1,1 @@
-Chewing gum while cutting onions can help prevent tears.
+The word "bookkeeper" has three consecutive double letters.
