@@ -1,1 +1,1 @@
-Peanuts aren’t nuts — they’re legumes.
+Pineapples take two years to grow.
