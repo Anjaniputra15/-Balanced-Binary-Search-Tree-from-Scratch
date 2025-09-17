@@ -1,1 +1,1 @@
-A group of flamingos is called a "flamboyance."
+There are more stars in the universe than grains of sand on Earth.
