@@ -1,1 +1,1 @@
-There are more stars in the universe than grains of sand on Earth.
+Your taste buds have a lifespan of about 10 days.
