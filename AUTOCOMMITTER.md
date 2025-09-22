@@ -1,1 +1,1 @@
-You can hear a blue whale’s heartbeat from over 2 miles away.
+The longest hiccuping spree lasted 68 years.
