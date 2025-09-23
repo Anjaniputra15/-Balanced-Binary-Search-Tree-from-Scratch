@@ -1,1 +1,1 @@
-Tigers have striped skin, not just striped fur.
+A day on Earth used to be only 18 hours long.
