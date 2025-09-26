@@ -1,1 +1,1 @@
-A human could swim through a blue whale’s arteries.
+Octopuses taste with their arms.
