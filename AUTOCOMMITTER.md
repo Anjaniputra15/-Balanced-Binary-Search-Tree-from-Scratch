@@ -1,1 +1,1 @@
-There are more stars in the universe than grains of sand on Earth.
+The unicorn is the national animal of Scotland.
