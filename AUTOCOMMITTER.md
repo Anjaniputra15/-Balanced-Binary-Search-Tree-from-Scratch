@@ -1,1 +1,1 @@
-The longest hiccuping spree lasted 68 years.
+Tigers have striped skin, not just striped fur.
