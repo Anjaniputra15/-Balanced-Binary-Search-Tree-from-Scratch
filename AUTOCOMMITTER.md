@@ -1,1 +1,1 @@
-A day on Earth used to be only 18 hours long.
+Chewing gum while cutting onions can help prevent tears.
