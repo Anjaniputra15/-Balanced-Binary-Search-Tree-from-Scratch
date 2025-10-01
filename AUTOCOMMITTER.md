@@ -1,1 +1,1 @@
-The hashtag symbol is technically called an octothorpe.
+A group of ferrets is called a "business."
