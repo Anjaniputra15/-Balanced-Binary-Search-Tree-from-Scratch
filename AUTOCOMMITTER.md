@@ -1,1 +1,1 @@
-Octopuses taste with their arms.
+Peanuts aren’t nuts — they’re legumes.
