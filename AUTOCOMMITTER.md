@@ -1,1 +1,1 @@
-Your taste buds have a lifespan of about 10 days.
+The longest hiccuping spree lasted 68 years.
