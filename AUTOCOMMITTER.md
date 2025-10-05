@@ -1,1 +1,1 @@
-One spaghetti noodle is called a spaghetto.
+Worms can have up to five hearts.
