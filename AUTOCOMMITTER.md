@@ -1,1 +1,1 @@
-Octopuses have three hearts.
+One spaghetti noodle is called a spaghetto.
