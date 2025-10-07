@@ -1,1 +1,1 @@
-A group of ferrets is called a "business."
+The world’s largest snowflake was 15 inches wide.
