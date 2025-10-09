@@ -1,1 +1,1 @@
-One spaghetti noodle is called a spaghetto.
+Snails can sleep for three years at a time.
