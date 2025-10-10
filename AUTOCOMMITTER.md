@@ -1,1 +1,1 @@
-The original London Bridge is now in Arizona.
+A human could swim through a blue whale’s arteries.
