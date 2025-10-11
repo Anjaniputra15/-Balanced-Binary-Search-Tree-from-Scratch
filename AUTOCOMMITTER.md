@@ -1,1 +1,1 @@
-A group of flamingos is called a "flamboyance."
+Your brain uses the same amount of power as a 10-watt lightbulb.
