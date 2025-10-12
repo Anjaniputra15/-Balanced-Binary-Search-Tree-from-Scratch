@@ -1,1 +1,1 @@
-Cows have best friends and get stressed when separated.
+A group of flamingos is called a "flamboyance."
