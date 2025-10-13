@@ -1,1 +1,1 @@
-Your fingernails grow faster on your dominant hand.
+Octopuses have three hearts.
