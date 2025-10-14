@@ -1,1 +1,1 @@
-Sloths can hold their breath longer than dolphins can.
+Your fingernails grow faster on your dominant hand.
