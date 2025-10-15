@@ -1,1 +1,1 @@
-The unicorn is the national animal of Scotland.
+Rabbits can’t vomit.
