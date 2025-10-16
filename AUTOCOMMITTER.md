@@ -1,1 +1,1 @@
-Rabbits can’t vomit.
+One spaghetti noodle is called a spaghetto.
