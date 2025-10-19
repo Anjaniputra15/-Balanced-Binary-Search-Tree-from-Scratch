@@ -1,1 +1,1 @@
-The world’s largest snowflake was 15 inches wide.
+Antarctica is the only continent without reptiles.
