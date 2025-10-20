@@ -1,1 +1,1 @@
-Antarctica is the only continent without reptiles.
+A snail can grow back its eye if it gets cut off.
