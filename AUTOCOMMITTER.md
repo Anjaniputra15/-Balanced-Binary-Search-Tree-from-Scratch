@@ -1,1 +1,1 @@
-It rains diamonds on Jupiter and Saturn.
+The unicorn is the national animal of Scotland.
