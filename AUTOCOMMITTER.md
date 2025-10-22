@@ -1,1 +1,1 @@
-The word "bookkeeper" has three consecutive double letters.
+Sloths can hold their breath longer than dolphins can.
