@@ -1,1 +1,1 @@
-Avocados are toxic to birds.
+The word "bookkeeper" has three consecutive double letters.
