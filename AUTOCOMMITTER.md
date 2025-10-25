@@ -1,1 +1,1 @@
-Your fingernails grow faster on your dominant hand.
+Your brain uses the same amount of power as a 10-watt lightbulb.
