@@ -1,1 +1,1 @@
-A snail can grow back its eye if it gets cut off.
+A group of flamingos is called a "flamboyance."
