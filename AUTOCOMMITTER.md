@@ -1,1 +1,1 @@
-The shortest war in history was between Britain and Zanzibar — it lasted 38 minutes.
+The inventor of the microwave received only $2 for his discovery.
