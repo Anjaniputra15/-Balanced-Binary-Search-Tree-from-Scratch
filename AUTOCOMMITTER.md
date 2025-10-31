@@ -1,1 +1,1 @@
-The longest hiccuping spree lasted 68 years.
+There are more fake flamingos in the world than real ones.
