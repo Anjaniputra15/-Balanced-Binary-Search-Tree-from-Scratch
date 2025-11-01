@@ -1,1 +1,1 @@
-Your brain uses the same amount of power as a 10-watt lightbulb.
+The tongue is the only muscle in the body attached from one end.
