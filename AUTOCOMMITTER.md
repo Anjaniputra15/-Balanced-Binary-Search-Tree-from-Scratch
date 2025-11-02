@@ -1,1 +1,1 @@
-A group of flamingos is called a "flamboyance."
+The shortest war in history was between Britain and Zanzibar — it lasted 38 minutes.
