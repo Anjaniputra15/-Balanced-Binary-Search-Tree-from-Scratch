@@ -1,1 +1,1 @@
-The longest hiccuping spree lasted 68 years.
+The Eiffel Tower can grow more than 6 inches in summer due to heat expansion.
