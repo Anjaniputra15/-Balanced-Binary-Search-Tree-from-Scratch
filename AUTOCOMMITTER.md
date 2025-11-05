@@ -1,1 +1,1 @@
-Tomatoes have more genes than humans.
+The tongue is the only muscle in the body attached from one end.
