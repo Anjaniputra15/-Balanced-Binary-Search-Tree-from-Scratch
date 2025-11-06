@@ -1,1 +1,1 @@
-Pigeons can do math.
+A group of flamingos is called a "flamboyance."
