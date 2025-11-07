@@ -1,1 +1,1 @@
-There are more fake flamingos in the world than real ones.
+Pineapples take two years to grow.
