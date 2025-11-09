@@ -1,1 +1,1 @@
-Most wasabi isn’t real wasabi — it’s colored horseradish.
+Mantis shrimp can punch with the speed of a bullet.
