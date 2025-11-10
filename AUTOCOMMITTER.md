@@ -1,1 +1,1 @@
-Mantis shrimp can punch with the speed of a bullet.
+The human stomach gets a new lining every few days.
