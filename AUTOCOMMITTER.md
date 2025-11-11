@@ -1,1 +1,1 @@
-lemons float in water but limes sink.
+Newborns don’t shed tears until about two weeks old.
