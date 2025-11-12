@@ -1,1 +1,1 @@
-The tongue is the only muscle in the body attached from one end.
+An apple, potato, and onion all taste the same if you eat them with your nose plugged.
