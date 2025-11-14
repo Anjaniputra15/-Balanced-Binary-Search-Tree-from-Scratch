@@ -1,1 +1,1 @@
-Pineapples take two years to grow.
+Cows can walk up stairs but not down.
