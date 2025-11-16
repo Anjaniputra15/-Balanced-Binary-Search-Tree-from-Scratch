@@ -1,1 +1,1 @@
-The human stomach gets a new lining every few days.
+The longest hiccuping spree lasted 68 years.
