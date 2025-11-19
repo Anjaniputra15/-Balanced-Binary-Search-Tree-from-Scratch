@@ -1,1 +1,1 @@
-Your fingernails grow faster on your dominant hand.
+A bolt of lightning travels at about 270,000 mph.
