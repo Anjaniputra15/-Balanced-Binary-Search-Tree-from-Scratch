@@ -1,1 +1,1 @@
-There’s a species of jellyfish that can live forever.
+Most wasabi isn’t real wasabi — it’s colored horseradish.
