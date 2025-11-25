@@ -1,1 +1,1 @@
-Humans are the only animals with chins.
+Cows have best friends and get stressed when separated.
