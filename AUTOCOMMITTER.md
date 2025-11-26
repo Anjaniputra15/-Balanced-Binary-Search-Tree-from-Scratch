@@ -1,1 +1,1 @@
-The inventor of the microwave received only $2 for his discovery.
+Your fingernails grow faster on your dominant hand.
