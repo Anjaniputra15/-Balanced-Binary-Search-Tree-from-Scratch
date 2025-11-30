@@ -1,1 +1,1 @@
-A bolt of lightning is hotter than the surface of the sun.
+There’s a species of jellyfish that can live forever.
