@@ -1,1 +1,1 @@
-Cows have best friends and get stressed when separated.
+The inventor of the microwave received only $2 for his discovery.
