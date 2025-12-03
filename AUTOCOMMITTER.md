@@ -1,1 +1,1 @@
-The hashtag symbol is technically called an octothorpe.
+The Eiffel Tower can grow more than 6 inches in summer due to heat expansion.
