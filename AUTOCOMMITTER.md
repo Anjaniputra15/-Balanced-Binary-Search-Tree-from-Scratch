@@ -1,1 +1,1 @@
-Octopuses have three hearts.
+It rains diamonds on Jupiter and Saturn.
