@@ -1,1 +1,1 @@
-A group of ferrets is called a "business."
+A single cloud can weigh more than a million pounds.
