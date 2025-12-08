@@ -1,1 +1,1 @@
-Some cats are allergic to humans.
+Goats have rectangular pupils.
