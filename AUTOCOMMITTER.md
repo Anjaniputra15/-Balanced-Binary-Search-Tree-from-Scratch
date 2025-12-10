@@ -1,1 +1,1 @@
-The Eiffel Tower can grow more than 6 inches in summer due to heat expansion.
+Sharks are the only fish that can blink with both eyes.
