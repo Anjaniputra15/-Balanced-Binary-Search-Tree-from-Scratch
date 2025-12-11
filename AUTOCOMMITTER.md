@@ -1,1 +1,1 @@
-It rains diamonds on Jupiter and Saturn.
+The hashtag symbol is technically called an octothorpe.
