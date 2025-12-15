@@ -1,1 +1,1 @@
-The word "bookkeeper" has three consecutive double letters.
+A day on Earth used to be only 18 hours long.
