@@ -1,1 +1,1 @@
-Newborns don’t shed tears until about two weeks old.
+The word "bookkeeper" has three consecutive double letters.
