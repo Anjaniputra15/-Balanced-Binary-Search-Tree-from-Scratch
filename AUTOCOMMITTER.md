@@ -1,1 +1,1 @@
-A narwhal’s tusk reveals its health and diet.
+Newborns don’t shed tears until about two weeks old.
