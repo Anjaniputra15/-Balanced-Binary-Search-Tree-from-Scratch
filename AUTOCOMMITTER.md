@@ -1,1 +1,1 @@
-The dot over the "i" and "j" is called a tittle.
+Rabbits can’t vomit.
