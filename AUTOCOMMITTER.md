@@ -1,1 +1,1 @@
-Rabbits can’t vomit.
+A narwhal’s tusk reveals its health and diet.
